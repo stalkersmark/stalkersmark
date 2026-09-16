@@ -5,6 +5,8 @@
 
 <p align="center"> ˗ˋˏ $\color{#B92424}{\textsf{STALKERㆍBLOODTHIRSTYㆍCRUEL}}$  ˎˊ-<br/>
 <a href="https://drifter.drr.ac/">carrd</a>  ⋮  <a href="https://macaron.atabook.org/">atabook</a> ⋮ <a href="https://rentry.co/chessboard">pt rentry</a>
+   <p align="center"> <img width="100" src="https://komarev.com/ghpvc/?username=stalkersmark&color=dc143c">
+
   
 <p align="center">
 <br/> 
@@ -25,5 +27,4 @@ cursed with <i>vampirism</i> and <sup><b>dx'd</b></sup>$\color{#B92424}{\textsf{
 ⠀ ⠀⠀ ⠀⠀:¨ ·.· ¨:<br/>
 ⠀ ⠀⠀ ⠀⠀`· . $\color{#B92424}{\textsf{enthralled}}$ by my <a href="https://rentry.co/quillock"><b>bellhop</b></a><br/>
 
-<img width="400" align="left" src="https://file.garden/ZteGAqNX_1wjcdv0/04.%20dividers/redbat">
 <img width="max" src="https://file.garden/ZteGAqNX_1wjcdv0/04.%20dividers/blood2.png" alt="banner2">
