@@ -26,5 +26,6 @@ cursed with <i>vampirism</i> and <sup><b>dx'd</b></sup>$\color{#B92424}{\textsf{
   <p align="left">
 ⠀ ⠀⠀ ⠀⠀:¨ ·.· ¨:<br/>
 ⠀ ⠀⠀ ⠀⠀`· . $\color{#B92424}{\textsf{enthralled}}$ by my <a href="https://rentry.co/quillock"><b>bellhop</b></a><br/>
-
+<img width="400" align="left" src="https://file.garden/ZteGAqNX_1wjcdv0/04.%20dividers/redbat"><br/>
+    <br/>
 <img width="max" src="https://file.garden/ZteGAqNX_1wjcdv0/04.%20dividers/blood2.png" alt="banner2">
