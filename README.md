@@ -5,7 +5,7 @@
 
 <p align="center"> ˗ˋˏ $\color{#B92424}{\textsf{STALKERㆍBLOODTHIRSTYㆍCRUEL}}$  ˎˊ-<br/>
 <a href="https://drifter.drr.ac/">carrd</a>  ⋮  <a href="https://macaron.atabook.org/">atabook</a> ⋮ <a href="https://rentry.co/chessboard">pt rentry</a>
-   <p align="center"> <img width="100" src="https://komarev.com/ghpvc/?username=stalkersmark&color=dc143c">
+   <p align="center"> <img width="100" src="https://komarev.com/ghpvc/?username=stalkersmark&color=B92424">
 
   
 <p align="center">
