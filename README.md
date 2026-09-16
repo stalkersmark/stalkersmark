@@ -1,6 +1,8 @@
-<img width="942" height="143" alt="blood1" src="https://github.com/user-attachments/assets/f039bbe3-5ffd-4cd3-abe4-45907208c505" />
-
-<p align="center"> collect my butterflies
-<br/>
+<p align="center">
+  <img width="max" src="https://file.garden/ZteGAqNX_1wjcdv0/04.%20dividers/blood1.png" alt="banner1">
 </p>
-
+<br/>
+<p align="center"> ˗ˋˏ $\color{#B92424}{\textsf{STALKERㆍBLOODTHIRSTYㆍCRUEL}}$  ˎˊ-<br/>
+[carrd](https://drifter.drr.ac/)  ⋮  [ata](https://macaron.atabook.org/) ⋮ 
+<br/>
+<img width="max" src="https://file.garden/ZteGAqNX_1wjcdv0/04.%20dividers/blood2.png" alt="banner2">
