@@ -13,8 +13,14 @@
 <p align="left"> 𓆩^._.^𓆪  $\color{#B92424}{\textsf{madeleine}}$ ﹒ 20岁 󠁛 𓂃  <br/>
 cursed with <i>vampirism</i> and <sup><b>dx'd</b></sup>$\color{#B92424}{\textsf{NPDID}}$ that affect how I act <br/>
 
-<p align="left"> my primary ids are <a href="https://deadlock.wiki/Drifter">drifter</a>, <a href="https://umamusu.wiki/Orfevre">orfevre</a>, <a href="https://limbuscompany.wiki.gg/wiki/Rodion">rodion</a>, <a href="https://houseki-no-kuni.fandom.com/wiki/Alexandrite">alexandrite</a><br/> <b>₊</b>  <a href="https://pronouns.cc/@drifter/02">more</a> 𓏼 i don't care about doubles. do not argue with me.<br/>
+<p align="left"> my primary ids are <a href="https://deadlock.wiki/Drifter">drifter</a>, <a href="https://umamusu.wiki/Orfevre">orfevre</a>, <a href="https://limbuscompany.wiki.gg/wiki/Rodion">rodion</a>, <a href="https://houseki-no-kuni.fandom.com/wiki/Alexandrite">alexandrite</a> <b>₊</b>  <a href="https://pronouns.cc/@drifter/02">more</a> <br/>i don't care about doubles. i'm <b>not</b> looking for sourcemates.<br/>
 
+<p align="left"> i don't consider myself a $\color{#B92424}{\textsf{yumeshipper}}$. i <i>do</i> associate certain<br/>
+  characters with my partner—mostly doorman and adam warlock.<br/>
+  
+  most of <b>my</b> version of $\color{#B92424}{\textsf{driftdoor}}$ is based on my relationship with them.<br/>
+  i consider myself a driftdoor monoshipper with <i>few</i> exceptions.<br/>
+  
   <p align="left">
 ⠀ ⠀⠀ ⠀⠀:¨ ·.· ¨:<br/>
 ⠀ ⠀⠀ ⠀⠀`· . $\color{#B92424}{\textsf{enthralled}}$ by my <a href="https://rentry.co/quillock"><b>bellhop</b></a><br/>
